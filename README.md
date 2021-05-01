@@ -3,9 +3,7 @@ i think penguins are cute
 
 🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧
 
-[💣 would you like to play minesweeper online ? 💣](https://minesweeper.live)
-
-[💥 or do you prefer your minesweeper offline ? 💥](https://penguinuwu.github.io/minesweeper.html)
+[💣💥 would you like to play minesweeper online ? 💥💣](https://minesweeper.live) [(or a simple offline version)](https://penguinuwu.github.io/minesweeper.html)
 
 🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧
 
