@@ -11,9 +11,11 @@ i think penguins are cute :]
 
 🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧
 
-[would you like to see my résumé ?](https://penguinuwu.github.io/resume/resume.pdf)
+[would you like to see my résumé ?](https://cs.utm.utoronto.ca/~cuiyiche/resume/resume-nice.pdf)
 
-[my re̶̢̺͕̝͌͒͌sume̺̳͖̭̻̝̦̱̎̉͒̆͠ is also available in ✨ *dark theme* ✨](https://penguinuwu.github.io/resume/resume-dark.pdf)
+[my re̶̢̺͕̝͌͒͌sume̺̳͖̭̻̝̦̱̎̉͒̆͠ is also available in ✨ *dark theme* ✨](https://cs.utm.utoronto.ca/~cuiyiche/resume/resume-dark.pdf)
+
+[light theme 🥲](https://cs.utm.utoronto.ca/~cuiyiche/resume/resume.pdf)
 
 🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧🐧
 
