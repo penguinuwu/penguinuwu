@@ -19,7 +19,7 @@ i think penguins are cute :]
 
 [would you like to see my résumé ?](https://cs.utm.utoronto.ca/~cuiyiche/resume/nice.html)
 
-[my re̶̢̺͕̝͌͒͌sume̺̳͖̭̻̝̦̱̎̉͒̆͠ is also available in ✨ *dark theme* ✨](https://cs.utm.utoronto.ca/~cuiyiche/resume/rdark.html)
+[my re̶̢̺͕̝͌͒͌sume̺̳͖̭̻̝̦̱̎̉͒̆͠ is also available in ✨ *dark theme* ✨](https://cs.utm.utoronto.ca/~cuiyiche/resume/dark.html)
 
 [if u like ʟɨɢɦȶ ȶɦɛʍɛ ʀȅ̶͚̭̳̣͙̌̓͌ֆʊʍE̛͈͍̼̜͆̽̽ 💀](https://cs.utm.utoronto.ca/~cuiyiche/resume/index.html)
 
